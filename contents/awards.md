@@ -1,16 +1,11 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Second Prize of Guangdong Province in the 16th National College Students Mathematics Competition, 2024.
 
-- National Scholarship for Graduate Student, 2024.
+- First Prize in Guangdong Division of the Higher Education Cup National Undergraduate Mathematical Modeling Competition, 2024.
 
-- First-Prize Scholarship (CUMT), 2024.
+- Honorable Mention of the American Mathematical Contest in Modeling, 2024.
 
-- First-Prize Scholarship (CUMT), 2023.
+- Second Prize of Guangdong Province in the 15th National College Students Mathematics Competition, 2023.
 
-- Freshman Scholarship (CUMT), 2022.
+- Third-class undergraduate scholarship（HITsz）, 2023.
 
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
-
-- First-Prize Enterprise Scholarship (CUMT), 2020.
-
-- First-Prize Scholarship (CUMT), 2019.
